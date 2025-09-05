@@ -1,6 +1,6 @@
 # 鱼鱼的超级机场官网地址
 
-最新地址：[qzz.io](https://yv1.qzz.io/#/register?code=5uvW3D57)
+最新地址：[qzz.io](https://user.yujc.me/#/register?code=5uvW3D57)
 
 ## 鱼鱼的超级机场介绍
 
